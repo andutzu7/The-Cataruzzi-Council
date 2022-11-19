@@ -1,0 +1,10 @@
+- Prince Royce/Marc Anthony - Adicto (feat. Marc Anthony)
+- Mr. Don/DJ Khalid/Johandy - Amigos Con Derechos
+- Dustin Richie - Bachata a Lo Loco
+- Karlos Rose - Sabotaje
+- Marco Puma ft. Blaze - 90 minutos
+- Marco Puma - 5 minutos más
+- DJ Khalid - Cásate Conmigo (Bachata Version)
+- Grupo Extra - Me Emborrachare - Bachata Radio Edit
+- Kewin Cosmos/Dj York/DJ Manuel Citro - Como Los 90's (Bachata Version)
+- Mr. Don/Lirow - Mala
